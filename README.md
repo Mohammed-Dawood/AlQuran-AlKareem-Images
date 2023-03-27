@@ -10,7 +10,6 @@ https://qrco.de/AlQuran-AlKareem
 
 
 
-![Namnlös design](https://user-images.githubusercontent.com/78726877/227907224-8e93f9d5-0d01-4bc5-bf70-8452a9f850eb.png)
 
 
 
