@@ -10,16 +10,7 @@ https://qrco.de/AlQuran-AlKareem
 
 
 
-![11](https://user-images.githubusercontent.com/78726877/227906760-ab561473-284e-471f-b71f-ab104705c10e.png)
-![12](https://user-images.githubusercontent.com/78726877/227906763-70f60145-3dff-4c23-82ce-ca5bb68c3874.png)
-
-![13](https://user-images.githubusercontent.com/78726877/227906765-ad8be4e3-7468-4670-aabf-f2df64845470.png)
-![14](https://user-images.githubusercontent.com/78726877/227906768-27db3021-cec2-4411-9abf-ca465055179e.png)
-
-![15](https://user-images.githubusercontent.com/78726877/227906770-5ac670c3-bfa2-49fa-80cc-e64a9906f18f.png)
-![16](https://user-images.githubusercontent.com/78726877/227906773-6035d56c-320b-450b-95b8-63f393a1d61e.png)
-
-![17](https://user-images.githubusercontent.com/78726877/227906777-039a1943-831e-4d5a-82ca-d5a956a57253.png)
+![Namnlös design](https://user-images.githubusercontent.com/78726877/227907224-8e93f9d5-0d01-4bc5-bf70-8452a9f850eb.png)
 
 
 
