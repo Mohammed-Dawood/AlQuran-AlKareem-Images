@@ -11,6 +11,9 @@ https://qrco.de/AlQuran-AlKareem
 
 
 
+
+
+
 ![11](https://user-images.githubusercontent.com/78726877/227898199-c0b5f8f4-d2b9-4340-b02b-b8f71af9052f.png)
 ![12](https://user-images.githubusercontent.com/78726877/227898209-98e71cbd-9ef7-4425-83c4-a8895033300f.png) 
 
